@@ -1,2 +1,1 @@
-# Rostylav Liapkin products
 
